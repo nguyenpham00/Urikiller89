@@ -1,1 +1,1 @@
-# Urikiller89
+https://curl.se/docs/CVE-2017-9502.html?ssp=1&setlang=vi&cc=US&safesearch=moderate
